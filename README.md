@@ -1,1 +1,1 @@
-# dancy-LIKELION
+# 멋쟁이 사자처럼 강의 요약본
